@@ -4561,8 +4561,3 @@ Wrap it up, guys.
   
 I had virtually no rehearsal for that.
 
-Feeling the thrill? Dive into online pokies real money fun at Lucky Green. Cash in on luck!
-Special thanks to SergeiK.
-
-Ready to test your luck, play some casino games and hope to win big? PokieSurf is your go-to online casino real money destination in Australia 2023!
-
